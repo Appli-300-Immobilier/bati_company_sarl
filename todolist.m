@@ -6,7 +6,7 @@
 - **Address/Contact:** 
   - Bati company ?? votre meilleur partenaire pour des travaux de finitions impeccables et durable ?? contact 678894013
   - 
-  - Page � Entreprise de construction
+  - Page é Entreprise de construction
   - 
   - Ndogpassi, Douala, Cameroon
   - 
